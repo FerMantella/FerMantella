@@ -1,5 +1,5 @@
 # 💫 About Me:
-várias atividades<br>cuidar da sua própria vida<br>segue o baile<br>a bailar<br>tudo<br>é isso ai
+Várias atividades, cuidar da sua própria vida, segue o baile a bailar tudo é isso ai!
 
 
 # 💻 Tech Stack:
